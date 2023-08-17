@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 
 💻 Procurando por estágio<br>📚 2 Semestre Tecnólogo ADS - Senac <br>
 
 
